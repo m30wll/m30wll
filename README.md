@@ -1,26 +1,18 @@
-![Untitled389_20250406001343](https://github.com/user-attachments/assets/b40d2896-2836-4260-8a61-16c7e621ceda)
-
+![Untitled390_20250406002049](https://github.com/user-attachments/assets/1875cb1c-43ca-4f46-bace-d8adb4ac5be5)
 
  ![Untitled363_20250323152755](https://github.com/user-attachments/assets/de710180-6e1d-4f13-b25e-7286a0082412)
-
-
 
  <br>|°.“ Being ***her friend*** makes me so **happy**!”.°|
  <br>
  <br>⁠˙⁠๑*⁠。cyra/kai ♡ 5teen 灬 she / **they** ๑
  <br> omnisexual ★ **adhd** `• istp (⁠ ⁠◜⁠‿⁠◝⁠ ⁠)⁠♡
  <br>
- <br>![Untitled389_20250406001343](https://github.com/user-attachments/assets/bfc842e0-e079-4fc7-a5d8-9d909ba61795)
-
+ <br> ![Untitled390_20250406002049](https://github.com/user-attachments/assets/c744cda0-dcb0-4bce-b48a-39c8b89d4d6f)
 
  <br> _tweaking out.._
 ![Untitled363_20250323160226](https://github.com/user-attachments/assets/7055a320-f1a4-4f76-83cf-108e96bfdf78)
 
-
-
-![Untitled389_20250406001343](https://github.com/user-attachments/assets/6eb6fef8-31e6-4c27-82f7-f51a67149d75)
-
-
+![Untitled390_20250406002049](https://github.com/user-attachments/assets/feee19a1-fedd-4841-932c-c8ad4996cf66)
 
 ⁠´⁠•⁠｡⁠∩ byi ◍⁠✧⁠*๑ 
  <br> ‘°—★—°`
@@ -31,14 +23,13 @@
  <br> •i *may* be mean on accident if we are friends, my apologies..
  <br> *dni -14//+20*
 
- ![Untitled389_20250406001343](https://github.com/user-attachments/assets/1a29445f-84d9-4fa3-b8ab-bd1603269053)
+ ![Untitled390_20250406002049](https://github.com/user-attachments/assets/8b169183-22b7-4029-9566-5f6654859487)
 
 
 ![Untitled363_20250323155746](https://github.com/user-attachments/assets/31d479d8-d0e5-4562-9f95-69d9da63e43a)
 
+![Untitled390_20250406002049](https://github.com/user-attachments/assets/490c4cc9-1235-4da1-9b5d-b6ed9d177d7d)
 
-
-![Untitled389_20250406001343](https://github.com/user-attachments/assets/d3fb3bb3-1f80-4d7b-95b8-1902b630daa2)
 
 
  
