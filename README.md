@@ -1,6 +1,6 @@
 ![Untitled363_20250323152755](https://github.com/user-attachments/assets/de710180-6e1d-4f13-b25e-7286a0082412)
 
- <br>|°.“ Being ***her friend*** makes me so **happy**!”.°|
+< <br>|°.“ Being ***her friend*** makes me so **happy**!”.°|>
  <br>
  <br>⁠˙⁠๑*⁠。cyra/kai ♡ 5teen 灬 she / **they** ๑
  <br> omnisexual ★ **adhd** `• istp (⁠ ⁠◜⁠‿⁠◝⁠ ⁠)⁠♡
