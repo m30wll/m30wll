@@ -21,7 +21,7 @@
  <br> ***•i do NOT ship in any way, unless we are close friends. nothing i draw or do is ship!***
  <br> •im.. weird 💀 im brainrotted.. skibidi sigma rizz guys..
  <br> •i *may* be mean on accident if we are friends, my apologies..
- <br> *dni -14//+20*
+ <br> •*dni -14//+20*
 
  ![Untitled390_20250406002049](https://github.com/user-attachments/assets/8b169183-22b7-4029-9566-5f6654859487)
 
