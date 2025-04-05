@@ -1,4 +1,5 @@
-![Tumblr_l_441464924063936](https://github.com/user-attachments/assets/3b817b44-9b30-4b50-af3d-72892dcdaeb7)
+![Tumblr_l_439524438272645](https://github.com/user-attachments/assets/d0d43a68-bf3a-4428-b72c-6b66fb3da827)
+
  <br>|°.“ Being ***her friend*** makes me so **happy**!”.°|
  <br>
  <br>⁠˙⁠๑*⁠。cyra/kai ♡ 5teen 灬 she / **they** ๑
@@ -17,7 +18,8 @@
  <br> •i *may* be mean on accident if we are friends, my apologies..
  <br> *dni -14//+20*
 
-![Untitled387_20250405234815](https://github.com/user-attachments/assets/cf556cfb-9f18-4894-8dbf-b01c13b80587)
+![Tumblr_l_439526297466863](https://github.com/user-attachments/assets/a95e906d-5eaf-4a03-bd14-b67b4fef7888)
+
  <br>
  <br> |.•°” No matter the ***cost***, i believe in **her** to the *end*.“°•.|
  <br>
