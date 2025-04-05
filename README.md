@@ -41,9 +41,10 @@
 ![Untitled389_20250406001343](https://github.com/user-attachments/assets/d3fb3bb3-1f80-4d7b-95b8-1902b630daa2)
 
 
- <br>
- <br> |.•°” No matter the ***cost***, i believe in **her** to the *end*.“°•.|
- <br>
+ 
+ <br> |.•°” **No matter the cost**, i believe in ***her*** to the *end* .“°•.|
+ 
+ 
 ![Tumblr_l_439755122883703](https://github.com/user-attachments/assets/24c3369d-40e1-42aa-8c46-39bb0ca1ad6f)
  <br>
  <br> *|=•”SYBAU KINICH!“•=|*
