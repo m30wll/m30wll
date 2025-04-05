@@ -1,18 +1,25 @@
- <br>![Untitled387_20250405235710](https://github.com/user-attachments/assets/2180d4a9-ef4e-4448-9768-3a65a866856c)
+![Untitled389_20250406001343](https://github.com/user-attachments/assets/b40d2896-2836-4260-8a61-16c7e621ceda)
 
- ![Tumblr_l_439524438272645](https://github.com/user-attachments/assets/d0d43a68-bf3a-4428-b72c-6b66fb3da827)
+
+ ![Untitled363_20250323152755](https://github.com/user-attachments/assets/de710180-6e1d-4f13-b25e-7286a0082412)
+
+
 
  <br>|°.“ Being ***her friend*** makes me so **happy**!”.°|
  <br>
  <br>⁠˙⁠๑*⁠。cyra/kai ♡ 5teen 灬 she / **they** ๑
  <br> omnisexual ★ **adhd** `• istp (⁠ ⁠◜⁠‿⁠◝⁠ ⁠)⁠♡
  <br>
- <br>![Untitled387_20250405235710](https://github.com/user-attachments/assets/4251e73d-e4e9-4ae2-a47e-a1e668b0046b)
+ <br>![Untitled389_20250406001343](https://github.com/user-attachments/assets/bfc842e0-e079-4fc7-a5d8-9d909ba61795)
+
 
  <br> _tweaking out.._
-![Tumblr_l_441556824040932](https://github.com/user-attachments/assets/7d9b64eb-c782-4afa-bf85-37ace9283789)
+![Untitled363_20250323160226](https://github.com/user-attachments/assets/7055a320-f1a4-4f76-83cf-108e96bfdf78)
 
-![Untitled387_20250405235710](https://github.com/user-attachments/assets/264b196d-f0e9-42c4-94da-bb780930a706)
+
+
+![Untitled389_20250406001343](https://github.com/user-attachments/assets/6eb6fef8-31e6-4c27-82f7-f51a67149d75)
+
 
 
 ⁠´⁠•⁠｡⁠∩ byi ◍⁠✧⁠*๑ 
@@ -24,12 +31,15 @@
  <br> •i *may* be mean on accident if we are friends, my apologies..
  <br> *dni -14//+20*
 
- ![Untitled387_20250405235710](https://github.com/user-attachments/assets/0adbad5b-1ee4-49e1-ae8b-07a46e969166)
+ ![Untitled389_20250406001343](https://github.com/user-attachments/assets/1a29445f-84d9-4fa3-b8ab-bd1603269053)
 
 
-![Tumblr_l_439526297466863](https://github.com/user-attachments/assets/a95e906d-5eaf-4a03-bd14-b67b4fef7888)
+![Untitled363_20250323155746](https://github.com/user-attachments/assets/31d479d8-d0e5-4562-9f95-69d9da63e43a)
 
-![Untitled387_20250405235710](https://github.com/user-attachments/assets/71bc62bf-d0f4-4283-8c5f-d60bfaea312a)
+
+
+![Untitled389_20250406001343](https://github.com/user-attachments/assets/d3fb3bb3-1f80-4d7b-95b8-1902b630daa2)
+
 
  <br>
  <br> |.•°” No matter the ***cost***, i believe in **her** to the *end*.“°•.|
