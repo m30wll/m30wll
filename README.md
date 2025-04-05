@@ -8,10 +8,10 @@ _tweaking out.._
 ![Tumblr_l_441556824040932](https://github.com/user-attachments/assets/7d9b64eb-c782-4afa-bf85-37ace9283789)
 
 
-⁠´⁠•⁠｡⁠∩ byi ◍⁠✧⁠*๑
-‘°—★—°`
-• i can get jealous very easily, even over fictional characters.. aka im kinda pathetic
-•i lowkey type so fast i can't spell..
+⁠´⁠•⁠｡⁠∩ byi ◍⁠✧⁠*๑ 
+( <br> ) ‘°—★—°`
+( <br> ) • i can get jealous very easily, even over fictional characters.. aka im kinda pathetic
+( <br> ) •i lowkey type so fast i can't spell..
 ***•i do NOT ship in any way, unless we are close friends. nothing i draw or do is ship!***
 •im.. weird 💀 im brainrotted.. skibidi sigma rizz guys..
 •i may be mean on accident if we are friends, my apologies..
