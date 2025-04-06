@@ -29,5 +29,4 @@
 <br> ᓚᘏᗢ you gotta tell me to use tonetags, i dont use then usually
 <br> ᓚᘏᗢ i ***LOOOOVEEE*** ranting and having people rant to me :3
 <br> ᓚᘏᗢ i type pretty fast so i might mispell.. really badly.. 
-<br> ᓚᘏᗢ brainrotted...<
-/p>
+<br> ᓚᘏᗢ brainrotted...<\p>
