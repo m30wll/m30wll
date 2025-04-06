@@ -1,4 +1,4 @@
-![Untitled396_20250406211236](https://github.com/user-attachments/assets/437eb9c2-b635-4e73-9f8a-d3d53fc3cc17)
+![tumblr_3e65cc5ae8044c86b1e3b001be36bd76_daf7e539_400](https://github.com/user-attachments/assets/45a2360b-05c4-4a04-9a2b-8e4542805352)
 
 
 <br> ![Untitled391_20250406194359](https://github.com/user-attachments/assets/a34f2fbe-8e94-4231-aa1b-169b3beab2ba)
@@ -8,4 +8,4 @@
 
 # HELLOOOO
 ## ꧁ᬊ᭄ᬊcyra, kaiᬊ᭄ᬊ꧂
-<br> ≽^•⩊•^≼ lvl 15 ｡𖦹°‧she/they ⭑.ᐟ omnisexual °˖➴ adhd ּ ֶָ֢. istp .☘︎ ⸙ eng ᶻ 𝗓 𐰁 .ᐟ aug 19th
+<br> 🪼⋆.ೃ࿔*:･ British//English ≽^•⩊•^≼ lvl 15 ｡𖦹°‧she/they ⭑.ᐟ omnisexual °˖➴ adhd ּ ֶָ֢. istp .☘︎ ⸙ eng ᶻ 𝗓 𐰁 .ᐟ aug 19th ദ്ദി（• ˕ •マ.ᐟ
