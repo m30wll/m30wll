@@ -17,7 +17,7 @@
 
 <br>![tumblr_3e65cc5ae8044c86b1e3b001be36bd76_daf7e539_400](https://github.com/user-attachments/assets/ba8a7c0c-646d-4968-8df1-4c9d135139f0)
 
-<br> ***before interacting!***
+: <br> ***before interacting!***
 <br> *ੈ✩·₊˚༺☆༻*ੈ✩·₊˚
 <br> ᓚᘏᗢ i draw bith traditional and digital!! 
 <br> ᓚᘏᗢ i get jealous pretty easily and i feel it quite strongly, so basically im pathetic (◞‸ ◟)💧
@@ -26,4 +26,4 @@
 <br> ᓚᘏᗢ you gotta tell me to use tonetags, i dont use then usually
 <br> ᓚᘏᗢ i ***LOOOOVEEE*** ranting and having people rant to me :3
 <br> ᓚᘏᗢ i type pretty fast so i might mispell.. really badly.. 
-<br> ᓚᘏᗢ brainrotted...
+<br> ᓚᘏᗢ brainrotted... :
