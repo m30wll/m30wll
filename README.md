@@ -14,6 +14,12 @@
 <br> ⋆ ˚｡⋆୨♡୧⋆ ˚｡⋆
 
 <br> 🪼⋆.ೃ࿔*:･ **British**//English ≽^•⩊•^≼ lvl 15 ｡𖦹°‧**she/they** ⭑.ᐟ *omnisexual* °˖➴ **adhd** ּ ֶָ֢. istp .☘︎ ⸙ eng ᶻ 𝗓 𐰁 .ᐟ *aug 19th* ദ്ദി（• ˕ •マ.ᐟ
+<br>
+![tumblr_3e65cc5ae8044c86b1e3b001be36bd76_daf7e539_400](https://github.com/user-attachments/assets/658af862-2acf-4435-9055-61583c8184be)
+
+<br>
+
+![Untitled391_20250406194330](https://github.com/user-attachments/assets/4d486c85-69c4-40ab-932a-d017d62b99a1)
 
 <br>![tumblr_3e65cc5ae8044c86b1e3b001be36bd76_daf7e539_400](https://github.com/user-attachments/assets/ba8a7c0c-646d-4968-8df1-4c9d135139f0)
 
@@ -29,3 +35,11 @@
 <br> ᓚᘏᗢ i type pretty fast so i might mispell.. really badly.. 
 <br> ᓚᘏᗢ brainrotted...
 <br> ᓚᘏᗢ if it wasnt obviously i ADORE cats— my fav breed is oriental shorthair ≽^- ˕ -^≼
+<br> ᓚᘏᗢ don't infantilise me??
+
+<br> 𓂃 𓈒𓏸 ⭒⋆🪐 ⋆⭒ 𓂃 𓈒𓏸
+<br> ***/ᐠ > ˕ <マ ₊˚⊹♡ have a good night/day!!***
+<br>
+![Untitled391_20250406194343](https://github.com/user-attachments/assets/54139a89-98b6-4017-86c7-8d0af83848af)
+
+!<br>[tumblr_3e65cc5ae8044c86b1e3b001be36bd76_daf7e539_400](https://github.com/user-attachments/assets/89e38a26-0a41-496f-89e0-54d9a9c54fd0)
