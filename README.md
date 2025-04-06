@@ -1,4 +1,3 @@
-<p align="center">
   
 ![tumblr_3e65cc5ae8044c86b1e3b001be36bd76_daf7e539_400](https://github.com/user-attachments/assets/45a2360b-05c4-4a04-9a2b-8e4542805352)
 
@@ -22,12 +21,11 @@
 //<br> ***before interacting!***
 <br> *ੈ✩·₊˚༺☆༻*ੈ✩·₊˚
 <br> ᓚᘏᗢ i draw both traditional and digital!! 
-<br> ᓚᘏᗢ i get jealous pretty easily and i feel it quite strongly, so basically im pathetic (◞‸ ◟)💧
+<br> ᓚᘏᗢ i get jealous pretty easily and i feel it quite strongly, so basically im pathetic 
+<br> (◞‸ ◟)💧
 <br> ᓚᘏᗢ basic dni// -14 + 20+
 <br> ᓚᘏᗢ ***I DO NOT SHIP. I HATE SHIPS AND WILL ONLY SHIP WITH CLOSE FRIENDS. NOTHING I DRAW OR DO IS SHIP!!11!***
 <br> ᓚᘏᗢ you gotta tell me to use tonetags, i dont use then usually
 <br> ᓚᘏᗢ i ***LOOOOVEEE*** ranting and having people rant to me :3
 <br> ᓚᘏᗢ i type pretty fast so i might mispell.. really badly.. 
 <br> ᓚᘏᗢ brainrotted...
-
-</p>
