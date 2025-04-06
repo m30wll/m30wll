@@ -21,7 +21,7 @@
 
 //<br> ***before interacting!***
 <a> *ੈ✩·₊˚༺☆༻*ੈ✩·₊˚
-<br> ᓚᘏᗢ i draw bith traditional and digital!! 
+<br> ᓚᘏᗢ i draw both traditional and digital!! 
 <br> ᓚᘏᗢ i get jealous pretty easily and i feel it quite strongly, so basically im pathetic (◞‸ ◟)💧
 <br> ᓚᘏᗢ basic dni// -14 + 20+
 <br> ᓚᘏᗢ ***I DO NOT SHIP. I HATE SHIPS AND WILL ONLY SHIP WITH CLOSE FRIENDS. NOTHING I DRAW OR DO IS SHIP!!11!***
