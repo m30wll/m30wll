@@ -1,5 +1,6 @@
-  
-![tumblr_3e65cc5ae8044c86b1e3b001be36bd76_daf7e539_400](https://github.com/user-attachments/assets/45a2360b-05c4-4a04-9a2b-8e4542805352)
+<p align="center"
+
+>![tumblr_3e65cc5ae8044c86b1e3b001be36bd76_daf7e539_400](https://github.com/user-attachments/assets/45a2360b-05c4-4a04-9a2b-8e4542805352)
 
 
 <br> ![Untitled391_20250406194359](https://github.com/user-attachments/assets/a34f2fbe-8e94-4231-aa1b-169b3beab2ba)
@@ -28,4 +29,5 @@
 <br> ᓚᘏᗢ you gotta tell me to use tonetags, i dont use then usually
 <br> ᓚᘏᗢ i ***LOOOOVEEE*** ranting and having people rant to me :3
 <br> ᓚᘏᗢ i type pretty fast so i might mispell.. really badly.. 
-<br> ᓚᘏᗢ brainrotted...
+<br> ᓚᘏᗢ brainrotted...<
+/p>
