@@ -34,8 +34,9 @@
 <br> ᓚᘏᗢ i ***LOOOOVEEE*** ranting and having people rant to me :3
 <br> ᓚᘏᗢ i type pretty fast so i might mispell.. really badly.. 
 <br> ᓚᘏᗢ brainrotted...
-<br> ᓚᘏᗢ if it wasnt obviously i ADORE cats— my fav breed is oriental shorthair ≽^- ˕ -^≼
-<br> ᓚᘏᗢ don't infantilise me??
+<br> ᓚᘏᗢ if it wasnt obviously i **ADORE** cats— my fav breed is oriental shorthair ≽^- ˕ -^≼
+<br> ᓚᘏᗢ **don't** infantilise me??
+<br> guys *please* talk to me im friendly im promise 🙏 
 <br> ![tumblr_3e65cc5ae8044c86b1e3b001be36bd76_daf7e539_400](https://github.com/user-attachments/assets/d1424cd9-0e7b-45e7-a2c1-b1290d03de97)
 
 <br> 𓂃 𓈒𓏸 ⭒⋆🪐 ⋆⭒ 𓂃 𓈒𓏸
