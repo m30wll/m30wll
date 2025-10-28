@@ -22,16 +22,27 @@
 
 ***info!***
 <br> i draw both traditional and digital sometimes 
+
 <br> i get jealous pretty easily over random stuff, especially people and my hyperfixations.
+
 <br> basic dni// -13 + 20+
+
 <br> ***i dont do shipping unless the ship is confirmed, dont come to me if you wanna talk about ships.***
+
 <br> you gotta tell me to use tonetags, i dont use then usually.
-<br> ᓚᘏᗢ i ***LOOOOVEEE*** ranting and having people rant to me, especially about my/ their hyperfixations.
-<br> ᓚᘏᗢ i type pretty fast so i might mispell.. really badly.. 
+
+<br> i ***LOOOOVEEE*** ranting and having people rant to me, especially about my/ their hyperfixations.
+
+<br> i type pretty fast so i might mispell.. really badly.. 
+
 <br> er..
-<br> ᓚᘏᗢ if it wasnt obviously i **ADORE** cats— my fav breed is oriental shorthair.
-<br> ᓚᘏᗢ **don't** infantilise me??
+
+<br> if it wasnt obviously i **ADORE** cats— my fav breed is oriental shorthair.
+
+<br> **don't** infantilise me??
+
 <br> guys *please* talk to me im friendly im promise 🙏 
+
 <br> ![tumblr_3e65cc5ae8044c86b1e3b001be36bd76_daf7e539_400](https://github.com/user-attachments/assets/d1424cd9-0e7b-45e7-a2c1-b1290d03de97)
 
 <br> ***have a good night/day!!***
