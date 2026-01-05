@@ -11,7 +11,7 @@
 
 <br> **currently hyperfixated on ninah!**
 
-<br> **British**//English, lvl 16, **she/they**, *omnisexual*, **adhd** ּ ֶָ֢. istp, *aug 19th*.
+<br> **British**//English, 16, **she/they**, *omnisexual*, **adhd** ּ ֶָ֢. istp, *aug 19th*.
 <br>
 ![tumblr_3e65cc5ae8044c86b1e3b001be36bd76_daf7e539_400](https://github.com/user-attachments/assets/658af862-2acf-4435-9055-61583c8184be)
 <br>
@@ -25,7 +25,7 @@
 
 <br> i get jealous pretty easily over random stuff, especially people and my hyperfixations.
 
-<br> basic dni// -13 + 20+
+<br> basic dni
 
 <br> ***i dont do shipping unless the ship is confirmed, dont come to me if you wanna talk about ships.***
 
